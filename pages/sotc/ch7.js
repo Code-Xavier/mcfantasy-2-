@@ -58,6 +58,13 @@ The moment we stepped outside he threw the hood of my jacket on, as well as his,
 “We aren’t-” I began, hoping I was misreading the situation but dad simply brought out the keys to the car, keys I recognized because of the black pom-pom keychain. He clicked them, unlocking the car. “We can't use our car,” he said,  “But fortunately, your friend was kind enough to leave hers behind.”
  
 
+
+
+1:00 AM, Somewhere Far North
+
+
+
+
 A bump in the road was what finally woke me up, making me hit my head against the car window. Slowly I opened my eyes, snapping to attention, surprised when I realized the sky outside my window was pitch black, it had still been early afternoon when I went to sleep.
 
 “Where are we?” I asked my father, who was behind the wheel. He looked over at me briefly, the car's dashboard clock marked 1 a.m and the street was almost completely deserted, snow covering the sides of it, along with thick winter forest. “We are in the middle of Ontario”, He said.
