@@ -60,7 +60,7 @@ The moment we stepped outside he threw the hood of my jacket on, as well as his,
 
 
 
-1:00 AM, Somewhere Far North
+1:00 AM, Somewhere North
 
 
 
